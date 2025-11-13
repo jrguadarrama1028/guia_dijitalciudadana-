@@ -1,2 +1,0 @@
-# guia_dijitalciudadana-
-proyecto 
